@@ -5,7 +5,7 @@
 **г. Минск**
 
 
-![Не люблю фотографироваться, серьезных фотографий нет](https://drive.google.com/file/d/1D2jEK1BestQhLYnounVascTimGF2Jb1m/view?usp=share_link)
+![Не люблю фотографироваться, серьезных фотографий нет](https://i.ibb.co/J5CP9Fp/IMG-0404.jpg)
 
 
 *********
